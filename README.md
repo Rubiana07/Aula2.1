@@ -1,1 +1,3 @@
-# Aula2.1
+Paolla Oliveira
+Giovanna Antonelli
+Cleo Pires
