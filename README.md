@@ -1,3 +1,4 @@
 Paolla Oliveira
-Giovanna Antonelli
+Bruna Marquezine
 Cleo Pires
+Ana Carolina
